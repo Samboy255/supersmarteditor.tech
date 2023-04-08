@@ -1,0 +1,1 @@
+# supersmarteditor.tech
